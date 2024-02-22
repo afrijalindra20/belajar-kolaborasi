@@ -1,2 +1,2 @@
 # belajar-kolaborasi di github <br>
-di dicoding
+di dicoding sangat mudah dan menyenangkan 
